@@ -14,4 +14,10 @@
  and My native is valparai, 
  My role model is my is father
  I got many topic with him, 
- my favourite person is my Mother
+ my favourite person is my Mother,
+ Ur way of speech is nice,
+ Ur presentation is well,
+ Ur so  soft,
+ Plase make me pass in Semester sir after finding out me
+ 
+ 
